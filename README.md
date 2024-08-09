@@ -1,10 +1,28 @@
 <p align="center">
-<img src="https://i.postimg.cc/Y0ZZ9R5q/Untitled159-20240716152906.webp"  />
-</div>
+<img src="https://i.postimg.cc/ydhVkLK6/Tumblr-l-4602779533476.png"  />
 <p align="center">
-HIII TRY TO NOT COPY MY PONIES PLEASE (it's kinda obvious ngl :sob:)
+"𝐢 𝐜𝐚𝐧'𝐭 𝐢𝐦𝐚𝐠𝐢𝐧𝐞 𝐛𝐞𝐢𝐧𝐠 𝐚𝐧𝐲𝐰𝐡𝐞𝐫𝐞 𝐞𝐥𝐬𝐞 𝐛𝐮𝐭 𝐡𝐞𝐫𝐞"
 <p align="center">
-adding my stamp collection :3
+<img src="https://i.postimg.cc/4xrZPDNN/Tumblr-l-4585777384181.png"  />
 <p align="center">
-<img src="https://i.postimg.cc/9Rc4HDsF/Tumblr-l-279331762309012.png"  /> <img src="https://i.postimg.cc/MXTT0JS4/Tumblr-l-40284741628223.png"  /> <img src="https://i.postimg.cc/5Xc2MHCd/Tumblr-l-40286939937760.gif"  /> <img src="https://i.postimg.cc/GHTmNP9x/Tumblr-l-40289648722489.gif"  /> <img src="https://i.postimg.cc/sGvg37my/Tumblr-l-42945534270474.png"  /> <img src="https://i.postimg.cc/bDYvFK2Z/Tumblr-l-43000618336858.png"  /> <img src="https://i.postimg.cc/Q96ML0p0/Tumblr-l-43005234301278.png"  /> <img src="https://i.postimg.cc/s1N2wHf2/Tumblr-l-43008061611468.png"  /> <img src="https://i.postimg.cc/CZg5bZhH/Tumblr-l-43042321162289.png"  /> <img src="https://i.postimg.cc/gwHJsYr9/Tumblr-l-43076997939495.png"  /> <img src="https://i.postimg.cc/4YtnKvgx/Tumblr-l-43107067519782.png"  /> <img src="https://i.postimg.cc/SJHJNTHP/Tumblr-l-43114015306623.gif"  /> <img src="https://i.postimg.cc/crvvWykY/Tumblr-l-55757580960079.gif"  /> <img src="https://i.postimg.cc/BtQ8h1xm/Tumblr-l-55778774922718.png"  /> <img src="https://i.postimg.cc/14C8b5Bs/Tumblr-l-731989797714898.gif"  /><img src="https://i.postimg.cc/bSJsdKz7/Tumblr-l-853455613241133.gif"  /><img src="https://i.postimg.cc/vgX4YQd7/Tumblr-l-853482688686844.png"  /><img src="https://i.postimg.cc/Nyk6XvcF/Tumblr-l-1119774992224835.gif"  /><img src="https://i.postimg.cc/k6MxFYJc/Tumblr-l-36513922130267.png"  />
+<img src="https://i.postimg.cc/nVkDWkmt/Tumblr-l-7115372382371.gif"  />
+<img src="https://i.postimg.cc/DzXGY3rC/Tumblr-l-1736966843547612.gif"  />
+<img src="https://i.postimg.cc/MpcfvJFW/Tumblr-l-7117229417678.gif"  />
+<p align="center">
+𝗛𝗜 𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰𝗮𝗹𝗹 𝗺𝗲 𝗡𝗮𝗿𝘂 𝗼𝗿 𝗡𝗶𝗰𝗼 ! 𝘄𝗵𝗶𝘀𝗽 𝘁𝗼 𝘀𝗶𝘁 𝘄𝗵𝗲𝗻 𝗶'𝗺 𝘄𝗶𝘁𝗵 𝗽𝗲𝗼𝗽𝗹𝗲 𝗮𝗻𝗱 𝗗𝗢 𝗡𝗢𝗧 𝗖𝗢𝗣𝗬 𝗠𝗬 𝗦𝗞𝗜𝗡𝗦 !! 𝗶 𝗯𝗲𝗴 𝘆𝗼𝘂..
+<p align="center">
+︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
+<p align="center">
+𝘿𝙉𝙄 
 
+<p align="center">
+ 𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 𝗰𝗿𝗶𝘁𝗲𝗿𝗶𝗮, 𝗽𝗿𝗼𝘀𝗵𝗶𝗽𝗽𝗲𝗿, 𝗵𝗲𝗮𝘃𝘆 𝗱𝗿𝘂𝗴 𝘂𝘀𝗲𝗿, 𝘀𝗵 𝗱𝘂𝗺𝗽, 𝗲𝗱𝘁𝘄𝘁 𝘂𝘀𝗲𝗿𝘀 + 𝘀𝗵𝘁𝘄𝘁 
+
+<p align="center">
+𝙏𝙃𝙄𝙉 𝙄𝘾𝙀
+
+<p align="center">
+𝗱𝘀𝗺𝗽, 𝗵𝗮𝘇𝗯𝗶𝗻 𝗵𝗼𝘁𝗲𝗹, 𝗵𝗲𝗹𝗹𝘂𝘃𝗮 𝗯𝗼𝘀𝘀, 𝗵𝗼𝘆𝗼𝘃𝗲𝗿𝘀𝗲 𝗴𝗮𝗺𝗲𝘀, 𝗱𝗶𝗴𝗶𝘁𝗮𝗹 𝗰𝗶𝗿𝗰𝘂𝘀, 𝗺𝗵𝗮, 𝘄𝗲𝗶𝗿𝗱 𝗰𝗵𝗿𝗼𝗻𝗶𝗰𝗮𝗹𝗹𝘆 𝗼𝗻𝗹𝗶𝗻𝗲 𝗮𝗻𝗶𝗺𝗲 𝗳𝗮𝗻𝘀. 𝗬𝗼𝘂 𝗰𝗮𝗻 𝗶𝗻 𝗳𝗮𝗰𝘁 𝗶𝗻𝘁 𝗿𝗲𝗮𝗹𝗹𝘆 𝗱𝗼𝗻'𝘁 𝗯𝗲 𝘀𝗰𝗮𝗿𝗲𝗱 !! 𝗜 𝗵𝗮𝘃𝗲 𝗻𝗼𝘁𝗵𝗶𝗻𝗴 𝗮𝗴𝗮𝗶𝗻𝘀𝘁 𝘆𝗮𝗹𝗹 𝗶 𝘄𝗶𝗹𝗹 𝗴𝗲𝘁 𝗮𝗹𝗼𝗻𝗴 𝗺𝗼𝗿𝗲 𝗯𝗮𝘀𝗲𝗱 𝗼𝘂𝘁 𝗼𝗳 𝘆𝗼𝘂𝗿 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹𝗶𝘁𝘆 𝗱𝗼𝗻'𝘁 𝗽𝘂𝘀𝗵 𝗼𝗻𝘁𝗼 𝗺𝗲 𝘁𝗼𝗼 𝗺𝘂𝗰𝗵 𝘁𝗵𝗼𝘀𝗲 𝗺𝗲𝗱𝗶𝗮𝘀 𝗶𝗳 𝗶 𝘀𝗲𝘁 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀 𝘁𝗵𝗮𝘁'𝘀 𝗮𝗹𝗹 !! 
+
+<p align="center">
+<img src="https://i.postimg.cc/nchHhKPZ/Tumblr-l-4592825161445.png"  />
