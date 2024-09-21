@@ -16,7 +16,7 @@ HI you can call me naru or ghost !! INT PLEASE I BEG YOUUU
 DNI 
 
 <p align="center">
-Basic dni, shtwt, edtwt, if you have too heavy addictions avoid int, avoid doing too much mental health discourse (if a mental health exist or not, fakeclaim) 
+Basic dni, shtwt, edtwt, if you have too heavy addictions avoid int, avoid doing too much mental health discourse (if a mental illness exist or not, fakeclaim) 
 
 <p align="center">
  WORKING ON MY RENTRY
