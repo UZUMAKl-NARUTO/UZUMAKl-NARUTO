@@ -18,7 +18,6 @@ DNI
 <p align="center">
 Basic dni, shtwt, edtwt, if you have too heavy addictions avoid int, avoid doing too much mental health discourse (if a mental illness exist or not, fakeclaim) 
 
-<p align="center">
- WORKING ON MY RENTRY
+
 <p align="center">
 <img src="https://i.postimg.cc/nchHhKPZ/Tumblr-l-4592825161445.png"  />
