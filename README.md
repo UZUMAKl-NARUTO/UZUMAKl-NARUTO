@@ -1,9 +1,9 @@
 <p align="center">
-<img src="https://i.postimg.cc/ydhVkLK6/Tumblr-l-4602779533476.png"  />
+<img src="https://i.postimg.cc/2ymVwXg5/Untitled34-20241214163611.png"  />
 <p align="center">
 "𝐢 𝐜𝐚𝐧'𝐭 𝐢𝐦𝐚𝐠𝐢𝐧𝐞 𝐛𝐞𝐢𝐧𝐠 𝐚𝐧𝐲𝐰𝐡𝐞𝐫𝐞 𝐞𝐥𝐬𝐞 𝐛𝐮𝐭 𝐡𝐞𝐫𝐞"
 <p align="center">
-<img src="https://i.postimg.cc/4xrZPDNN/Tumblr-l-4585777384181.png"  />
+<img src="https://i.postimg.cc/1XNJG4hS/Untitled33-20241214164536.png"  />
 <p align="center">
 <img src="https://i.postimg.cc/nVkDWkmt/Tumblr-l-7115372382371.gif"  />
 <img src="https://i.postimg.cc/DzXGY3rC/Tumblr-l-1736966843547612.gif"  />
@@ -20,4 +20,4 @@ Basic dni, shtwt, edtwt, if you have too heavy addictions avoid int, avoid doing
 
 
 <p align="center">
-<img src="https://i.postimg.cc/nchHhKPZ/Tumblr-l-4592825161445.png"  />
+<img src="https://i.postimg.cc/L6xntDDH/Untitled34-20241214163535.png"  />
