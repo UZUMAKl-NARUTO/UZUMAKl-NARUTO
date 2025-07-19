@@ -1,5 +1,4 @@
-<p align="center">
-<img src="https://i.postimg.cc/fy4kB38G/Untitled285-20250719133104.png"  />
+
 <p align="center">
 <img src="https://i.postimg.cc/k5N84mXW/Untitled288-20250719214020.png"  />
 <p align="center">
@@ -14,5 +13,3 @@ HI you can call me naru or grey !! INT PLEASE I BEG YOUUU
 ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
 <p align="center">
 <img src="https://i.postimg.cc/ZK1yxRWr/Untitled288-20250719214015.png"  />
-<p align="center">
-<img src="https://i.postimg.cc/rsSsb8bK/Untitled285-20250719133224.png"  />
