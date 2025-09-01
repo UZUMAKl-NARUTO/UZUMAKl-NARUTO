@@ -16,7 +16,7 @@ HI you can call me naru or grey !! INT PLEASE I BEG YOUUU
 <img src="https://i.postimg.cc/rmdrNdCj/SPOILER-IMG-7982-PNG.jpg" />
   
 <p align="center"> 
-@cry_of_fear github IM CRYING HE REALLY DREW HIMSELF CARRYING ME
+@cry-of-fear github IM CRYING HE REALLY DREW HIMSELF CARRYING ME
 <p align="center"> 
   
 <img src="https://i.postimg.cc/ZK1yxRWr/Untitled288-20250719214015.png"  />
