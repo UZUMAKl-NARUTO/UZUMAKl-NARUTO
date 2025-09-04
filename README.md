@@ -1,14 +1,9 @@
 
 <p align="center">
-<img src="https://i.postimg.cc/k5N84mXW/Untitled288-20250719214020.png"  />
+<img src="https://i.postimg.cc/FF7BVYD1/Untitled358-20250904150939.png"  />
 <p align="center">
-<img src="https://i.postimg.cc/HLK0HBMJ/Untitled287-20250730135224.png"  />
 <p align="center">
-<img src="https://i.postimg.cc/nVkDWkmt/Tumblr-l-7115372382371.gif"  />
-<img src="https://i.postimg.cc/DzXGY3rC/Tumblr-l-1736966843547612.gif"  />
-<img src="https://i.postimg.cc/MpcfvJFW/Tumblr-l-7117229417678.gif"  />
-<p align="center">
-HI you can call me naru or grey !! INT PLEASE I BEG YOUUU
+DO NOT ASSOCIATE ME WITH THE COMMUNITIES OF MY INTEREST. I AM MY OWN BEING AND I ENJOY STUFF IN MY CORNER!!! I PROMISE IM CHILL
 <p align="center">
 ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
   
@@ -17,6 +12,4 @@ HI you can call me naru or grey !! INT PLEASE I BEG YOUUU
   
 <p align="center"> 
 @cry-of-fear github IM CRYING HE REALLY DREW HIMSELF CARRYING ME
-<p align="center"> 
-  
-<img src="https://i.postimg.cc/ZK1yxRWr/Untitled288-20250719214015.png"  />
+
