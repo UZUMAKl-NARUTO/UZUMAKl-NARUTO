@@ -3,7 +3,6 @@
 <img src="https://i.postimg.cc/FF7BVYD1/Untitled358-20250904150939.png"  />
 <p align="center">
 <p align="center">
-DO NOT ASSOCIATE ME WITH THE COMMUNITIES OF MY INTEREST. I AM MY OWN BEING AND I ENJOY STUFF IN MY CORNER!!! I PROMISE IM CHILL
 <p align="center">
 ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
   
