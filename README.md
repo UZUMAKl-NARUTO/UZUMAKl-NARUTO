@@ -3,7 +3,7 @@
 <img src="https://i.postimg.cc/FF7BVYD1/Untitled358-20250904150939.png"width="1000px"   />
 <p align="center">
 <img alt="alt_text" width="200px" src="https://i.postimg.cc/cH55NW4s/Untitled360-20250904151432.png" />
-<img alt="alt_text" width="350px" src="https://i.postimg.cc/ZK3Zj7V9/Untitled360-20250904151504.png" />
+<img alt="https://uzumakinaruto.straw.page" width="350px" src="https://i.postimg.cc/ZK3Zj7V9/Untitled360-20250904151504.png" />
 <p align="center">
 ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
   
