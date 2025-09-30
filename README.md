@@ -3,6 +3,8 @@
 <img src="https://i.postimg.cc/FF7BVYD1/Untitled358-20250904150939.png"width="1000px"   />
 <p align="center">
 @gamkatious on twt for creds
+<p align="center"> 
+rogue of blood !!!
 <p align="center">
 ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
   
