@@ -1,12 +1,10 @@
 
 <p align="center">
-<img src="https://i.postimg.cc/43vzmTbW/Untitled422-20251017122419.png"width="1000px"   />
+<img src="https://i.postimg.cc/FF7BVYD1/Untitled358-20250904150939.png"width="1000px"   />
 <p align="center">
 @gamkatious on twt for creds
 <p align="center">
-<img src="https://i.postimg.cc/j21fGqtS/ezgif-21a569732eb94d.gif"width="800px"   />
-<p align="center"> 
-  WIP !!!!
+rogue of blood !!
 <p align="center"> 
 <img src="https://i.postimg.cc/rmdrNdCj/SPOILER-IMG-7982-PNG.jpg"800px" />
 
