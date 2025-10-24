@@ -4,7 +4,7 @@
 <p align="center">
 @gamkatious on twt for creds
 <p align="center">
-rogue of blood !!
+rogue of heart !!
 <p align="center"> 
 <img src="https://i.postimg.cc/rmdrNdCj/SPOILER-IMG-7982-PNG.jpg"800px" />
 
