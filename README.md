@@ -6,6 +6,8 @@
 <p align="center">
 rogue of heart !!
 <p align="center"> 
+remaking abt me soon
+<p align="center">
 <img src="https://i.postimg.cc/rmdrNdCj/SPOILER-IMG-7982-PNG.jpg"800px" />
 
 <p align="center"> 
