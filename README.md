@@ -22,6 +22,6 @@ i'm cautious with who i interract with if you have minimum braincells welcome to
 <p align="center">
 <img src="https://i.postimg.cc/YSRtnH45/Tumblr-l-2350938123825161.gif"width="1000px"   />
 <p align="center">
-<img src="https://i.postimg.cc/bw89nsMd/Tumblr-l-2683299502367439.gif"width="300px"   /><img src="https://i.postimg.cc/mgRy9tqC/Tumblr-l-2683297804561398.gif"width="300px"   /><img src="https://i.postimg.cc/T3GJbpSq/Tumblr-l-2683302915701343.gif"width="300px"   />
+<img src="https://i.postimg.cc/bw89nsMd/Tumblr-l-2683299502367439.gif"width="200px"   /><img src="https://i.postimg.cc/mgRy9tqC/Tumblr-l-2683297804561398.gif"width="200px"   /><img src="https://i.postimg.cc/T3GJbpSq/Tumblr-l-2683302915701343.gif"width="200px"   />
 <p align="center">
 duddubstep on tumblr & rotationcube & c1ubDeuce on twt for creds
