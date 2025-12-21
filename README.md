@@ -1,13 +1,7 @@
 
 <p align="center">
-<img src="https://i.postimg.cc/h4bdJcRx/Untitled463-20251121203126.png"width="1000px"   />
+<img src="https://i.postimg.cc/7YMp4N9H/Untitled485-20251221112718.png"width="1000px"   />
 <p align="center">
-gamkatious & rotationcube on twt for creds
+<img src="https://i.postimg.cc/Wp0ym7Qb/Untitled486-20251221112958.png"width="1000px"   />
 <p align="center">
-<img src="https://i.postimg.cc/1t18tYWj/Untitled447-20251121203151.png"width="800px"   />
-<p align="center">
-<img src="https://i.postimg.cc/rmdrNdCj/SPOILER-IMG-7982-PNG.jpg"800px" />
-
-<p align="center"> 
-@cry-of-fear github IM CRYING HE REALLY DREW HIMSELF CARRYING ME
-
+brrerkyr & rotationcube & c1ubDeuce on twt for creds
