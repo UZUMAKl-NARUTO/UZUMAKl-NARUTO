@@ -15,7 +15,7 @@ you will be ignored or blocked dont approach me
 <img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . i'm fond of making new friends im actually cool with it even tho i'm very opinionated, 
 i'm cautious with who i interract with if you have minimum braincells welcome to the club
 <p align="center">
-<img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer, my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo 
+<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer, my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo 
 <p align="center">
 <img src="https://i.postimg.cc/Wp0ym7Qb/Untitled486-20251221112958.png"width="1000px"   />
 <p align="center">
