@@ -25,7 +25,7 @@ i'm cautious with who i interract with if you have minimum braincells welcome to
 <img src="https://i.postimg.cc/YSRtnH45/Tumblr-l-2350938123825161.gif"width="1000px"   />
   
   <p align="center">
-<img src= https://i.postimg.cc/tCgR5Jxm/12-Sem-Titulo-20260115061228.png"width="1000px"   />
+<img src="https://i.postimg.cc/tCgR5Jxm/12-Sem-Titulo-20260115061228.png"width="800px"   />
   <p align="center">
 credits to the incredible amazing sweet kind beautiful Erik love u dude <33
 <p align="center">
