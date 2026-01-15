@@ -5,7 +5,7 @@
 <p align="center">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <p align="center">
-<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . Naru or Nick, 17 soon 18 so below 16 be mindful of that
+<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . Naru or Nick, 17 soon 18 so below 15 be mindful of that
 <p align="center">
 <img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
 you will be ignored or blocked dont approach me
