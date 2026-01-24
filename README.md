@@ -8,12 +8,12 @@
 <img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . Naru or Nick, 17 soon 18 so below 15 be mindful of that
 <p align="center">
 <img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
-you will be ignored or blocked dont approach me
+you will be ignored or blocked dont approach me. Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you !
 <p align="center">
-<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . You can interract with me anytime but i'm offtab probably busy somewhere, whisp me to catch my attention!
+<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . You can interract with me anytime, i'm probably offtab busy somewhere, whisp me to catch my attention ! i'm always friendly i dont mind anyone asking to sit near me
 <p align="center">
 <img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . i'm fond of making new friends im actually cool with it even tho i'm very opinionated, 
-i'm cautious with who i interract with if you have minimum braincells welcome to the club
+i'm cautious with who i interract with if you have minimum braincells welcome to the club i like nerding out a lot talk to me about stuff you like !!!
 <p align="center">
 <img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer, my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo 
 <p align="center">
