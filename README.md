@@ -13,7 +13,7 @@ you will be ignored or blocked dont approach me. Regardless if you actively part
 <img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . You can interact with me anytime, i'm probably offtab busy somewhere, whisp me to catch my attention ! i'm always friendly i dont mind anyone asking to sit near me
 <p align="center">
 <img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . i'm fond of making new friends im actually cool with it even tho i'm very opinionated, 
-i'm cautious with who i interract with if you have minimum braincells welcome to the club i like nerding out a lot talk to me about stuff you like !!!
+i'm cautious with who i talk to if you have minimum braincells welcome to the club. I like nerding out a lot talk to me about stuff you like i really like debating about my interest
 <p align="center">
 <img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer, my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo 
 <p align="center">
