@@ -10,6 +10,7 @@
 you will be ignored or blocked dont approach me, Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you !
 <p align="center">
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . You can interact with me anytime, i'm probably offtab busy somewhere, whisp me to catch my attention ! i'm always friendly i dont mind anyone asking to sit near me
+<p align="center">
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . i'm fond of making new friends im actually cool with it even tho i'm very opinionated, 
 i'm cautious with who i talk to if you have minimum braincells welcome to the club ! I like nerding out a lot, talk to me about stuff you get interested in i really like debating about my interest aswell
 <p align="center">
