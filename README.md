@@ -1,26 +1,21 @@
 <p align="center">
-<img src="https://i.postimg.cc/rmQnP8Lq/Tumblr-l-2353744771840080.png"width="120px"   />   <img src="https://i.postimg.cc/Y9nRxb1F/Tumblr-l-2353757131877888.png"width="120px"   />   <img src="https://i.postimg.cc/XN11K78L/Tumblr-l-2353747674107631.png"width="120px"   />   <img src="https://i.postimg.cc/fbvBVwyG/Tumblr-l-2353755793202159.png"width="120px"   />   <img src="https://i.postimg.cc/MHHPkhWN/Tumblr-l-2353746102996433.png "width="120px"   />   <img src="https://i.postimg.cc/zvyj2Kjd/Tumblr-l-2353758504747210.png"width="120px"   /> 
-<p align="center">
-<img src="https://i.postimg.cc/s2J36ZHQ/Untitled483-20251221115142.png"width="900px"   />
+<img src="https://i.postimg.cc/FYc9F7wB/Tumblr-l-2392890039272335.png"width="120px"   />   <img src="https://i.postimg.cc/0zm85bh4/Tumblr-l-2392896848954363.png"width="120px"   />   <img src="https://i.postimg.cc/DSs2f8Rp/Tumblr-l-2392900433501914.png"width="120px"   />   <img src="https://i.postimg.cc/757xPfjj/Tumblr-l-4530311019635611.png"width="120px"   />     <img src="https://i.postimg.cc/Yvgp2hTV/Tumblr-l-2392898972149206.png"width="120px"   />    <img src="https://i.postimg.cc/w1J6x7n0/Tumblr-l-3646320549185798.png"width="120px"   /> 
+<img src="https://i.postimg.cc/XJzZYCZx/Untitled546-20260227173101.png "width="900px"   />
 <p align="center">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <p align="center">
-<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . Naru or Nick, 17 soon 18 so below 15 be mindful of that
+<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Nick, 17 soon 18 so below 15 be mindful of that ! I'm really friendly and i like making friends please talk to meee
 <p align="center">
 <img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
-you will be ignored or blocked dont approach me. Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you !
+you will be ignored or blocked dont approach me, Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you !
 <p align="center">
 <img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . You can interact with me anytime, i'm probably offtab busy somewhere, whisp me to catch my attention ! i'm always friendly i dont mind anyone asking to sit near me
-<p align="center">
 <img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . i'm fond of making new friends im actually cool with it even tho i'm very opinionated, 
 i'm cautious with who i talk to if you have minimum braincells welcome to the club ! I like nerding out a lot, talk to me about stuff you get interested in i really like debating about my interest aswell
 <p align="center">
-<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer, my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo 
+<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer (for homestuck likers), my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo i also multiship but generally have favorites !!
 <p align="center">
-<img src="https://i.postimg.cc/QxRjQsPX/glitter-text4.gif"width="900px"   />
-<p align="center">
-<img src="https://i.postimg.cc/Wp0ym7Qb/Untitled486-20251221112958.png"width="1000px"   />
-<p align="center">
+<img src="https://i.postimg.cc/T3VvnbgC/glitter-text3.gif"width="900px"   />
 <p align="center">
 <img src="https://i.postimg.cc/YSRtnH45/Tumblr-l-2350938123825161.gif"width="1000px"   />
   
@@ -33,7 +28,7 @@ credits to the incredible amazing sweet kind beautiful Erik love u dude <33
 <p align="center"> 
 <img src="https://i.postimg.cc/bw89nsMd/Tumblr-l-2683299502367439.gif"width="200px"   /><img src="https://i.postimg.cc/mgRy9tqC/Tumblr-l-2683297804561398.gif"width="200px"   /><img src="https://i.postimg.cc/T3GJbpSq/Tumblr-l-2683302915701343.gif"width="200px"   />
 <p align="center">
-duddubstep on tumblr & rotationcube & c1ubDeuce on twt for creds
+fantastictorchy on twt for creds of the graphic i made
 <p align="center">
 <img src="https://i.postimg.cc/G9ttkVB4/Tumblr-l-2392407940467154.gif"width="150px"   /> <img src="https://i.postimg.cc/Rqhhcy3S/Tumblr-l-2392441228353443.gif"width="150px"   /><img src="https://i.postimg.cc/c6CCQ2Kr/Tumblr-l-2392536224733720.webp"width="150px"   /><img src="https://i.postimg.cc/nMrrvgsr/Tumblr-l-2392775192939722.gif"width="150px"   /><img src="https://i.postimg.cc/9z00GK4z/Tumblr-l-2392835617657876.gif"width="150px"   /><img src="https://i.postimg.cc/7bhhgdCX/Tumblr-l-2392843923844383.gif"width="150px"   /><img src="https://i.postimg.cc/K4jjnwK5/Tumblr-l-2392977678366780.gif"width="150px"   /><img src="https://i.postimg.cc/PNJJm9L2/Tumblr-l-2393127881544379.gif"width="150px"   /><img src="https://i.postimg.cc/pySTkC8D/Tumblr-l-2393219181056428.gif"width="150px"   /><img src="https://i.postimg.cc/Btbbxk82/Tumblr-l-2393255615234435.gif"width="150px"   /><img src="https://i.postimg.cc/PNJJm9LY/Tumblr-l-2393349084433878.gif"width="150px"   /><img src="https://i.postimg.cc/dD338p7d/Tumblr-l-2393401181373650.gif"width="150px"   /><img src="https://i.postimg.cc/Z0QRjH38/Tumblr-l-2393428994590306.gif"width="150px"   /><img src="https://i.postimg.cc/Z0QRjH36/Tumblr-l-2393430986210982.gif"width="150px"   /><img src="https://i.postimg.cc/t7JJhw16/Tumblr-l-2393475972308674.gif"width="150px"   />
 <p align="center">
