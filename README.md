@@ -6,14 +6,14 @@
 <p align="center">
 <img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . Naru or Nick, 17 soon 18 so below 15 be mindful of that ! I'm really friendly and i like making friends please talk to meee
 <p align="center">
-<img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
+<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . proshippers and any deriving term or whatever leave me alone 
 you will be ignored or blocked dont approach me, Regardless if you actively participate or not if you have people in your circle that you "dont mind" do not interact thank you !
 <p align="center">
-<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . You can interact with me anytime, i'm probably offtab busy somewhere, whisp me to catch my attention ! i'm always friendly i dont mind anyone asking to sit near me
-<img src="https://i.postimg.cc/NMCzJg1x/Tumblr-l-2841467140396946.gif"width="20px"   />  . i'm fond of making new friends im actually cool with it even tho i'm very opinionated, 
+<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . You can interact with me anytime, i'm probably offtab busy somewhere, whisp me to catch my attention ! i'm always friendly i dont mind anyone asking to sit near me
+<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . i'm fond of making new friends im actually cool with it even tho i'm very opinionated, 
 i'm cautious with who i talk to if you have minimum braincells welcome to the club ! I like nerding out a lot, talk to me about stuff you get interested in i really like debating about my interest aswell
 <p align="center">
-<img src="https://i.postimg.cc/4d2SLJzQ/Tumblr-l-2841468815010799.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer (for homestuck likers), my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo i also multiship but generally have favorites !!
+<img src="https://i.postimg.cc/Y0xQq9HL/Tumblr-l-4530230585540017.gif"width="20px"   />  . extra useless info ; i'm a rogue of heart prospit dreamer (for homestuck likers), my mbti is enfp 2w3 sx/so neutral good sang-chol and i'm post hardcore emo i also multiship but generally have favorites !!
 <p align="center">
 <img src="https://i.postimg.cc/T3VvnbgC/glitter-text3.gif"width="900px"   />
 <p align="center">
